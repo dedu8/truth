@@ -1,3 +1,14 @@
+![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
+
+# 欢迎！
+
+打开天窗,听一听外面的声音...<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
+
+**请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
+**微信里直接点击打不开，请先点击右上角三个点，选择在浏览器中打开**
+![](https://raw.githubusercontent.com/osurf/up/master/QR_1.jpg)
+
+
 ### 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
@@ -43,6 +54,21 @@
 ### ▶ 我要三退
 <a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a>
+------------------------------------------------------------
+
+
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
+
+**●快退出共产党、共青团、少先队，保平安！**
+
+进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！
+
+[提交网址1](http://t.cn/RIULD8f) 
+
+[提交网址2](http://t.cn/R633XhM) 
+
 ### ▶ 明慧特刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/TrueFLG" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/ExposeLies" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg"></a>  <a href="https://github.com/tomalltruthforyou/QuitCCP" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/OrganHarvest" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/Retribution" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" ></a> 
 
