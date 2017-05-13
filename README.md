@@ -23,7 +23,8 @@
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/WZJD.jpg" ></a>
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/ZGJW.jpg" ></a>
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/QQXW.jpg" ></a>
-
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/GX.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/RDHD.jpg" ></a>
 今日点击 | 文昭解读|中国禁闻| 全球新闻
 
 
