@@ -17,9 +17,9 @@
 ### ▶ 精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ### ▶独家视频
-<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 ### ▶人气最旺电视剧
-<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="http://fo.dedu.me/ogate/up/master/Image/1EB/DKC.jpg" width="317" height="123"></a>
 ------------------------------------------------------------
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
