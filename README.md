@@ -17,7 +17,11 @@
 ### ▶ 精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ### ▶独家视频
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/NYZX.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1ED/XTFY.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EC/ZYZG.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/DWHM.jpg" ></a>
+
 ### ▶最热脱口秀
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/JRDJ.jpg" ></a>
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/WZJD.jpg" ></a>
@@ -25,11 +29,16 @@
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/QQXW.jpg" ></a>
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/GX.jpg" ></a>
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/RDHD.jpg" ></a>
-今日点击 | 文昭解读|中国禁闻| 全球新闻
+
+今日点击 | 文昭解读|中国禁闻| 全球新闻| 事事关心| 热点互动
 
 
 ### ▶人气最旺电视剧
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
+<a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/LRWS.jpg" ></a>
+<a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
+<a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
+
 ------------------------------------------------------------
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
