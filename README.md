@@ -19,7 +19,10 @@
 ### ▶独家视频
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 ### ▶最热脱口秀
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/JRDJ.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/WZJD.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/ZGJW.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/QQXW.jpg" ></a>
 
 ### ▶人气最旺电视剧
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
