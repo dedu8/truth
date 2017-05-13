@@ -19,7 +19,7 @@
 ### ▶独家视频
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 ### ▶人气最旺电视剧
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="http://fo.dedu.me/ogate/up/master/Image/1EB/DKC.jpg" width="317" height="123"></a>
+<a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" width="317" height="123"></a>
 ------------------------------------------------------------
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
