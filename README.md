@@ -1,6 +1,6 @@
-![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
 # 欢迎来到翻越红墙 看真相
+![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
 打开天窗,听一听外面的声音...<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
 
