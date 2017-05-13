@@ -42,6 +42,17 @@
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
 [提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
+
+------------------------------------------------------------
+![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
+
+### ▶ 了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。
+
+[点击访问明慧网](http://t.cn/Ri80wPK) 
+
+[备用1](http://li.1x.de)
+[备用2](http://fa.x9.eu)
+
 ------------------------------------------------------------
 ### ▶ 明慧特刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/TrueFLG" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/ExposeLies" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg"></a>  <a href="https://github.com/tomalltruthforyou/QuitCCP" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/OrganHarvest" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/Retribution" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" ></a> 
@@ -57,22 +68,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/14" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/21575113/c2fa3f34-cef9-11e6-9c3b-88f6d260405f.jpg" width="100" height="142"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/27" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/22404285/2d11cec2-e5f3-11e6-8037-9c4e81ffb362.jpg" width="100" height="142"></a>
 <a href="https://d1zsng9cxdrwyc.cloudfront.net/MH/chenxi/chenxi-69.pdf" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14400739/77d82136-fe40-11e5-8b7e-bd9cc5d33e3c.JPG" width="100" height="142"></a>
-
 ------------------------------------------------------------
-### ▶ 其它精彩内容 · 在线观看或下载
-<a href="https://github.com/tomalltruthforyou/truth/issues/23" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17000494/5a1ff192-4eb2-11e6-9d1a-4a17e44720b7.jpg" width="200"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/18" target="_blank"><img src="https://cloud.githubusercontent.com/assets/20497750/25074139/ac0ac572-22ba-11e7-9dbc-2e5b5446d64c.jpg" width="210"></a>
-<a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/25074243/60bb0418-22bc-11e7-95ab-c5624b98a8bd.jpg" width="210"></a>
--------------------------------------------------------------
-![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
-
-### ▶ 了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。
-
-[点击访问明慧网](http://t.cn/Ri80wPK) 
-
-[备用1](http://li.1x.de)
-[备用2](http://fa.x9.eu)
------------------------------------------------------------
 ### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
