@@ -46,21 +46,8 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://t.cn/RIULD8f) 
-
+[提交网址1](http://t.cn/RIULD8f)  
 [提交网址2](http://t.cn/R633XhM) 
-------------------------------------------------------------
-
-### ▶ 精彩网站 · 免翻直连
-<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
-<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
-<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
-<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
-<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
-<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
-
 ------------------------------------------------------------
 
 ### ▶ 明慧特刊 · 在线阅读或下载
@@ -98,7 +85,17 @@
 
 -----------------------------------------------------------
 
-### ▶ 友好链接**
+### ▶ 精彩网站 · 免翻直连
+<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
+<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
+
+------------------------------------------------------------
 
 [网门oGate](http://3.dedu.me) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
 
