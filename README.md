@@ -35,6 +35,7 @@
 
 ### ▶人气最旺电视剧
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
+<a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/DKC.jpg" ></a>
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/LRWS.jpg" ></a>
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/LRKF.jpg" ></a>
 <a href="https://raw.githubusercontent.com/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EB/LRKZ.jpg" ></a>
