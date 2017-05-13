@@ -13,12 +13,13 @@
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
 <a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
 <a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
-
+------------------------------------------------------------
 ### ▶ 精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
-
-
-
+### ▶独家视频
+<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
+### ▶人气最旺电视剧
+<a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 ### ▶ 特别关注
 <a href="https://d229rk9l49nnml.cloudfront.net/falsefire.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19641471/17117230/38bad78a-5289-11e6-8790-1230d796c19e.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/BaiNianCCP/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/24839779/6b975d1e-1d26-11e7-9d5e-9d9593e235fe.jpg" width="317" height="123"></a>
@@ -34,6 +35,21 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/25" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375610/ea4c32c0-fda5-11e5-9fe0-3a1f6dd7c0f3.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/21" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/17471431/987d0e7c-5d33-11e6-9ed3-a4761ad694fa.jpg" width="317" height="123"></a>
 <a href="https://d229rk9l49nnml.cloudfront.net/journey.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375611/ea4d7e78-fda5-11e5-87d7-5f4b2e73c876.jpg" width="317" height="123"></a>
+------------------------------------------------------------
+
+### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！**
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
+
+<a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a><a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
+
+进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！
+
+[提交网址1](http://t.cn/RIULD8f) 
+
+[提交网址2](http://t.cn/R633XhM) 
+------------------------------------------------------------
 
 ### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
@@ -45,25 +61,7 @@
 <a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
 <a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
 
-### ▶ 音频集锦 · 在线收听及下载
-<a href="https://d225dz4ufcfbcz.cloudfront.net/audio/listaudio9ping.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375427/96fb8aea-fda4-11e5-9770-7c14db54ee08.jpg" width="317" height="91"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/audio/listaudiojtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375426/96fb5e9e-fda4-11e5-93fa-cd0805485aa8.jpg" width="317" height="91"></a>
-<a href="https://d225dz4ufcfbcz.cloudfront.net/audio/listaudiomtdwh.asp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375428/97321d8a-fda4-11e5-9b67-596dcfdf3308.jpg" width="317" height="91"></a>
-### ▶ 我要三退　**●快退出共产党、共青团、少先队，保平安！**
-![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
-
 ------------------------------------------------------------
-
-
-<a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a><a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
-
-进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
-
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！
-
-[提交网址1](http://t.cn/RIULD8f) 
-
-[提交网址2](http://t.cn/R633XhM) 
 
 ### ▶ 明慧特刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/TrueFLG" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/ExposeLies" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg"></a>  <a href="https://github.com/tomalltruthforyou/QuitCCP" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/OrganHarvest" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/Retribution" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" ></a> 
