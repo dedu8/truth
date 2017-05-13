@@ -1,6 +1,6 @@
 ![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
-# 欢迎！
+# 欢迎来到翻越红墙 看真相
 
 打开天窗,听一听外面的声音...<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
 
@@ -44,7 +44,9 @@
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
 
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！[提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！
+
+[提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
 ------------------------------------------------------------
 ### ▶ 明慧特刊 · 在线阅读或下载
 <a href="https://github.com/tomalltruthforyou/TrueFLG" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665391/324db610-0716-11e6-9f28-77dbd86675a2.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/ExposeLies" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279508/e4bedbf0-fb70-11e5-8a1f-32df4ef4d39d.jpg"></a>  <a href="https://github.com/tomalltruthforyou/QuitCCP" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279499/e485d0f8-fb70-11e5-8859-1c8f5f22d48c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/OrganHarvest" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16735909/59fc59d8-477a-11e6-8eb1-5c82b247c20c.jpg" ></a>  <a href="https://github.com/tomalltruthforyou/Retribution" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14665390/324bada2-0716-11e6-9c9a-982f61722b93.jpg" ></a> 
@@ -74,7 +76,7 @@
 [点击访问明慧网](http://t.cn/Ri80wPK) 
 
 [备用1](http://li.1x.de)
-[备用3](http://fa.x9.eu)
+[备用2](http://fa.x9.eu)
 -----------------------------------------------------------
 ### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
