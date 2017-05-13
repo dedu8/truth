@@ -83,3 +83,23 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/17" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/25074243/60bb0418-22bc-11e7-95ab-c5624b98a8bd.jpg" width="210"></a>
 
 
+
+-------------------------------------------------------------
+
+![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
+
+### ▶ 了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
+
+[点击访问明慧网](http://t.cn/Ri80wPK) 
+
+[备用1](http://li.1x.de)
+[备用3](http://fa.x9.eu)
+
+
+-----------------------------------------------------------
+
+### ▶ 友好链接**
+
+[网门oGate](http://3.dedu.me) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
+
+QQ或360浏览器流氓拦截请放行。
