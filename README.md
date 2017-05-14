@@ -23,12 +23,12 @@
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/DWHM.jpg" ></a>
 
 ### ▶最热脱口秀
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/JRDJ.jpg"  width="317"></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/WZJD.jpg" width="317" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/ZGJW.jpg" width="317" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/QQXW.jpg" width="317" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/GX.jpg" width="317" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/RDHD.jpg" width="317" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/JRDJ.jpg"  width="200"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/WZJD.jpg" width="200" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/ZGJW.jpg" width="200" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/QQXW.jpg" width="200" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/GX.jpg" width="200" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/RDHD.jpg" width="200" ></a>
 
 今日点击 | 文昭解读|中国禁闻| 全球新闻| 事事关心| 热点互动
 
