@@ -2,12 +2,14 @@
 # 欢迎来到翻越红墙 看真相！
 ![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
-打开天窗,听一听外面的声音...<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
+打开天窗,听一听外面的声音...
+<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
 ### 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
-✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp;   [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
+[【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
 
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
@@ -18,9 +20,9 @@
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ### ▶独家视频
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/NYZX.jpg" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1ED/XTFY.jpg" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EC/ZYZG.jpg" ></a>
-<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/DWHM.jpg" ></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1ED/XTFY.jpg" width="150"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/1EC/ZYZG.jpg" width="150"></a>
+<a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/2EC/DWHM.jpg" width="150"></a>
 
 ### ▶最热脱口秀
 <a href="http://ogate.org/show.aspx?name=c816689" target="_blank"><img src="https://raw.githubusercontent.com/ogate/up/master/Image/4ED/JRDJ.jpg"  width="150"></a>
