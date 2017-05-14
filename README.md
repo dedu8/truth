@@ -1,5 +1,5 @@
 
-# 欢迎来到翻越红墙 看真相！
+欢迎来到翻越红墙 看真相！
 ![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
 打开天窗,听一听外面的声音...
@@ -7,7 +7,7 @@
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
-### 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
 [【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
 
